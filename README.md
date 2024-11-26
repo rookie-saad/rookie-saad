@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @rookie-saad
 - 👀 I’m interested in : Gaming, Movie/Series, Productivity
 - 🌱 I’m currently learning Basics of Programming
-- 💞️ I’m looking to collaborate on : --
 - 📫 How to reach me : Discord, Whats App, Facebook
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Tall Guy 
